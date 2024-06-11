@@ -1,0 +1,6 @@
+![image](https://github.com/anannyasaha/NHIC/assets/55306236/10f7abe4-c13d-4824-b457-cd9fd2678cd0)
+![image](https://github.com/anannyasaha/NHIC/assets/55306236/6707513f-b3b9-4e55-955f-eac94c96daaa)
+![image](https://github.com/anannyasaha/NHIC/assets/55306236/7d806fe5-41a7-4985-8ba2-d65231c206b6)
+![image](https://github.com/anannyasaha/NHIC/assets/55306236/d8acdd01-aa32-4b90-b7fd-21752115c041)
+![image](https://github.com/anannyasaha/NHIC/assets/55306236/8329476f-c28e-464c-98ad-558f8004cacc)
+![image](https://github.com/anannyasaha/NHIC/assets/55306236/407604af-297f-4c48-9f1f-639d20ff246e)
